@@ -3,7 +3,7 @@
 # [- YUGEN -](https://osuskins.net/skin/wEaMJGb)
 ![](https://osu.ppy.sh/ss/15963949/caf4)
 # [- # WhiteCat (1.0) #-](https://skins.osuck.net/index.php?newsid=1107)
-![](https://osu.ppy.sh/ss/15963970/967a)
+![](https://osu.ppy.sh/ss/15967116/aa9a)
 # [Cinia](https://skins.osuck.net/index.php?newsid=1626)
 ![](https://osu.ppy.sh/ss/15963984/ccce)
 # [Rohulk 5.0b](https://www.mediafire.com/file/ydtyx47t4ntfx0t/Rohulk+5.0b.osk/file)
