@@ -14,3 +14,5 @@
 ![](https://osu.ppy.sh/ss/15966894/bcef)
 # [Chitanda](https://www.mediafire.com/file/q9incvd2pzab4sz/Chitanda.osk/file)
 ![](https://osu.ppy.sh/ss/15966918/25ff)
+# [Aristia(Edit)+Trial](https://www.mediafire.com/file/3k580mlvgcbdsg9/Aristia(Edit)+trail.osk/file)
+![](https://osu.ppy.sh/ss/15967102/f70d)
