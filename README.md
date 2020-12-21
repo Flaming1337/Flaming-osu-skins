@@ -1,5 +1,6 @@
 # Flaming-osu-skins
 * This are the most of the skins I use on my stream, to download a skin just click on the skin name.
+* If I miss a skin here, type in my discord or chat I will update the skin list.
 # [- YUGEN -](https://osuskins.net/skin/wEaMJGb)
 ![](https://osu.ppy.sh/ss/15963949/caf4)
 # [- # WhiteCat (1.0) #-](https://skins.osuck.net/index.php?newsid=1107)
