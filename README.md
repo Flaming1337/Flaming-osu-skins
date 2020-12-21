@@ -5,7 +5,7 @@
 # [- # WhiteCat (1.0) #-](https://skins.osuck.net/index.php?newsid=1107)
 ![](https://osu.ppy.sh/ss/15967116/aa9a)
 # [Cinia](https://skins.osuck.net/index.php?newsid=1626)
-![](https://osu.ppy.sh/ss/15963984/ccce)
+![](https://osu.ppy.sh/ss/15967131/9c12)
 # [Rohulk 5.0b](https://www.mediafire.com/file/ydtyx47t4ntfx0t/Rohulk+5.0b.osk/file)
 ![](https://osu.ppy.sh/ss/15967121/abc1)
 # [Vaxei 404](https://www.mediafire.com/file/0s1p0kxpqaeaa16/404+SkinNotFound+v2.osk/file)
