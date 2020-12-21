@@ -7,7 +7,7 @@
 # [Cinia](https://skins.osuck.net/index.php?newsid=1626)
 ![](https://osu.ppy.sh/ss/15963984/ccce)
 # [Rohulk 5.0b](https://www.mediafire.com/file/ydtyx47t4ntfx0t/Rohulk+5.0b.osk/file)
-![](https://osu.ppy.sh/ss/15963993/1c41)
+![](https://osu.ppy.sh/ss/15967121/abc1)
 # [Vaxei 404](https://www.mediafire.com/file/0s1p0kxpqaeaa16/404+SkinNotFound+v2.osk/file)
 ![](https://osu.ppy.sh/ss/15964041/5b47)
 # [Fast EloHere Rafis](https://www.mediafire.com/file/pyy8jdx671o4ia1/-#+[Y]+Fast+EloHere+2020+ft+[RK]+#-.osk/file)
