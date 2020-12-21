@@ -6,7 +6,7 @@
 ![](https://osu.ppy.sh/ss/15963970/967a)
 # [Cinia](https://skins.osuck.net/index.php?newsid=1626)
 ![](https://osu.ppy.sh/ss/15963984/ccce)
-# [Rohulk 5.0b](https://skins.osuck.net/index.php?newsid=802)
+# [Rohulk 5.0b](https://www.mediafire.com/file/ydtyx47t4ntfx0t/Rohulk+5.0b.osk/file)
 ![](https://osu.ppy.sh/ss/15963993/1c41)
 # [Vaxei 404](https://mega.nz/file/hzAHnYrb#nLbTxK29IrqTj5mZl4Yob9ZLYh1PeW2LUC6W0y5mGrQ)
 ![](https://osu.ppy.sh/ss/15964041/5b47)
